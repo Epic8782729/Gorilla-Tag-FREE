@@ -1,6 +1,6 @@
 # Gorilla-Tag-FREE
 
-Is Gorilla Tag expensive! Try this Free Gorilla Tag!  This is a paid verison but i made it free for you guys.
+Is Gorilla Tag expensive? Try this Free Gorilla Tag!  This is a paid verison but i made it free for you guys.
 
 # Disclaimer 
 
